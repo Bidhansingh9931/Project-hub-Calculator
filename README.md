@@ -30,3 +30,6 @@ enter here
 
 22BCA024 PRITESH KUMAR
 8544685939 / priteshk105@gmail.com
+
+22BCA017 BIDHAN KUMAR SINGH
+9931243551 / bidhansingh9931@gmail.com
